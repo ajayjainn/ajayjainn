@@ -14,5 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-[Resume](https://drive.google.com/file/d/1JG0u5bGzisaNMRovnIWx2YzWX8YTE9d3/view?usp=sharing)
+[Resume](https://drive.google.com/file/d/1i5N8_javyHB1BPHf6BCLsFgs00kYaY1W/view?usp=sharing)
 [LinkedIn](https://www.linkedin.com/in/ajayjainn/)
