@@ -15,5 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 [Website](https://ajayjain.me)
-[Resume](https://cv.ajayjain.me/)
+[Resume](https://www.ajayjain.me/Ajay-Jain-Resume.pdf)
 [LinkedIn](https://www.linkedin.com/in/ajayjainn/)
